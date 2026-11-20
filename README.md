@@ -1,30 +1,25 @@
+<img src="https://files.catbox.moe/5dbdkh.png" width="350" align="left"> 
 
-[document](https://docs.google.com/document/d/1o_fls11K4j3EC7iLGpSab5qyGbIMWlzOlPUlq4oOF0U/edit?usp=drivesdk)
+<img src="https://files.catbox.moe/pa2k7y.png" width="300" align="left">
 
-<img width="390" alt="ggfuggineasy" src="https://github.com/user-attachments/assets/00041adc-41c7-4a6c-af75-6defbcbe0871" />
-
-<img width="329" div align=left alt="whatdatmean" src="https://github.com/user-attachments/assets/56b69ebb-28ff-4b25-973b-19f21ca56316" />
-
-<table>
-  <tr>
+<br>  
+  <table>
+    <tr>
       <td>
-  <sub>playing expectations by olivia rodrigo . . .</sub>  
-        
-  $${\color{#f45c9c}\space ( · ❛ ֊ ❛) \space   ֶָ   ࣪   ׅ  }$$　
-   $${\color{#f7aca7}\space these \space days \space ive}$$ $${\color{#d8c9d9}\space got \space expectations  \space ₎₎ }$$ <img width="40" alt="musicnota" src="https://github.com/user-attachments/assets/8d5b2f01-8070-40a5-81a6-0c0a6a12771b" />
-<br>  <img width="40" alt="jumperwhoschoppeduphead" src="https://github.com/user-attachments/assets/917bad6a-5483-473b-9752-adf21bae08e4" />
-  $${\color{#575657}\space i \space   ֶָ   ࣪   ׅ  }$$　 $${\color{#e09e8c}\space got \space big  ֶָ}$$ $${\color{#fbd1d2} expectations   ֶָ}$$ <br>
-   </td>
+     <img src="https://files.catbox.moe/t0e8kq.png" width="20"> ${\textsf{\color{#F5D9D7} 𝒜nd}}$ ${\textsf{\color{#F5E0C4} i}}$ ${\textsf{\color{#F8EAD5} really}}$ ${\textsf{\color{#E5F4D9} couldnt}}$ ${\textsf{\color{#E4E1EB} say}}$ ${\textsf{\color{#F4F3EA} U⁠ ⁠´⁠꓃⁠ ⁠`⁠ ⁠U}}$ <br>
+${\textsf{\color{#ECDCEC} 𝒲hy}}$ ${\textsf{\color{#F5D9D7} my}}$ ${\textsf{\color{#F5E0C4} life}}$ ${\textsf{\color{#F8EAD5} is}}$ ${\textsf{\color{#E5F4D9} so}}$ ${\textsf{\color{#E4E1EB} 𝒫hoto}}$ ${\textsf{\color{#ECDCEC}graphic!}}$ ${\textsf{\color{#F4F3EA} ₊˚⊹}}$<br>
+      </td>
     </tr>
-    
-<details>
-  <summary> $${\color{#e28987} \space  ࣪ ˖ my \space ·　 ׅ l   i nks　 ·}$$</summary>
-  
-  [ata](https://goodboi.atabook.org/)
+  </table>
 
-  [fluffle](https://fluffle.cc/oml)
+<img src="https://file.garden/aYcjB7qxDC3tLALZ/spokegithub/spoke_rainbow.gif" width="20"> ${\textsf{\color{#F5D9D7} 𓂃}}$ ${\textsf{\color{#F5E0C4} ࣪}}$ ${\textsf{\color{#F8EAD5} ˖}}$ [rentry](https://rentry.co/dependenceduo) ${\textsf{\color{#E5F4D9}⁺}}$ [ata](https://dol9hins.atabook.org/)${\textsf{\color{#E4E1EB} ༝}}$ [strawpage](https://conexion.straw.page/) ${\textsf{\color{#ECDCEC}⭑}}$ ${\textsf{\color{#F4F3EA}؛༊}}$
+<img src="https://komarev.com/ghpvc/?username=100bottlesofglue&style=flat-square&color=B6B9B2&label=george+jr" alt="profile view counter" width="100" align="center">
 
 
-</details>
+ <details>
+  <summary> ${\textsf{\color{#F5D9D7}  ♡⃕　﹑}}$ ${\textsf{\color{#F5E0C4} click}}$ ${\textsf{\color{#F8EAD5} me}}$ ${\textsf{\color{#E5F4D9} 2}}$ ${\textsf{\color{#E4E1EB} show}}$ ${\textsf{\color{#ECDCEC} oomfies !}}$ ${\textsf{\color{#F4F3EA} ₊ ݁. • }}$ <img src="https://file.garden/aYcjB7qxDC3tLALZ/spokegithub/spoke_crackers.gif" width="20"> </summary><br>
+   im the biggest pareo bandori kin. so6(w7)39 interact with me I don't bite :) 
 
+   
+<img src="https://files.catbox.moe/vjbve9.png" width="300" align="left">
 
