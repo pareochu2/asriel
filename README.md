@@ -7,7 +7,7 @@
   <table>
     <tr>
       <td>
-     <img src="https://files.catbox.moe/t0e8kq.png" width="20"> ${\textsf{\color{#F5D9D7} 𝒜nd}}$ ${\textsf{\color{#F5E0C4} i}}$ ${\textsf{\color{#F8EAD5} really}}$ ${\textsf{\color{#E5F4D9} couldnt}}$ ${\textsf{\color{#E4E1EB} say}}$ ${\textsf{\color{#F4F3EA} U⁠ ⁠´⁠꓃⁠ ⁠`⁠ ⁠U}}$ <br>
+     <img src="https://files.catbox.moe/t0e8kq.png" width="20"> ${\textsf{\color{#5E589E} 𝒜nd}}$ ${\textsf{\color{#A274B8} i}}$ ${\textsf{\color{#C07EC1} really}}$ ${\textsf{\color{#D585C8} couldnt}}$ ${\textsf{\color{#D585C8} say}}$ ${\textsf{\color{#F4F3EA} U⁠ ⁠´⁠꓃⁠ ⁠`⁠ ⁠U}}$ <br>
 ${\textsf{\color{#ECDCEC} 𝒲hy}}$ ${\textsf{\color{#F5D9D7} my}}$ ${\textsf{\color{#F5E0C4} life}}$ ${\textsf{\color{#F8EAD5} is}}$ ${\textsf{\color{#E5F4D9} so}}$ ${\textsf{\color{#E4E1EB} 𝒫hoto}}$ ${\textsf{\color{#ECDCEC}graphic!}}$ ${\textsf{\color{#F4F3EA} ₊˚⊹}}$<br>
       </td>
     </tr>
