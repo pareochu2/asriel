@@ -14,7 +14,7 @@ ${\textsf{\color{#F79BCF} 𝒲hy}}$ ${\textsf{\color{#D585C8} my}}$ ${\textsf{\c
   </table>
 
 <img src="https://file.garden/aYcjB7qxDC3tLALZ/spokegithub/spoke_rainbow.gif" width="20"> ${\textsf{\color{#FDEEF8}𓎢𓎟}}$ ${\textsf{\color{#FDEEF8} ࣪}}$ ${\textsf{\color{#FDEEF8} ⑅}}$ [prns](https://rentry.co/dependenceduo) ${\textsf{\color{#FDEEF8}⁺}}$ [ata](https://dol9hins.atabook.org/)${\textsf{\color{#FDEEF8} ༝}}$ [strawpage](https://conexion.straw.page/) ${\textsf{\color{#FDEEF8}⭑}}$ ${\textsf{\color{#FDEEF8}؛ଓ}}$
-<img src="A274B8" alt="profile view counter" width="100" align="center">
+<img src="https://komarev.com/ghpvc/?username=100bottlesofglue&style=flat-square&color=A274B8&label=george+jr" alt="profile view counter" width="100" align="center">
 
 
  <details>
