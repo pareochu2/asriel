@@ -18,7 +18,7 @@ ${\textsf{\color{#F79BCF} 𝒲hy}}$ ${\textsf{\color{#D585C8} my}}$ ${\textsf{\c
 
 
  <details>
-  <summary> ${\textsf{\color{#A274B8}  ♡⃕　﹑}}$ ${\textsf{\color{#FDEEF8} signㅤmyㅤata book 4 a kiss!}}$ ${\textsf{\color{#5E589E} ₊ ݁. • }}$ <img src="https://file.garden/aYcjB7qxDC3tLALZ/spokegithub/spoke_crackers.gif" width="20"> </summary><br>
+  <summary> ${\textsf{\color{#A274B8}  ♡⃕　﹑}}$ ${\textsf{\color{#FDEEF8} signㅤmyㅤata book 4 a kiss!}}$ ${\textsf{\color{#5E589E} ₊ ݁. • }}$ <img src="https://files.catbox.moe/9c88de.gif" width="20"> </summary><br>
    im the biggest pareo bandori kin. so6(w7)39 interact with me I don't bite :) <br></details>
 
    
