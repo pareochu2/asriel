@@ -7,13 +7,13 @@
   <table>
     <tr>
       <td>
-     <img src="https://files.catbox.moe/t0e8kq.png" width="20"> ${\textsf{\color{#5E589E} 𝒜nd}}$ ${\textsf{\color{#A274B8} i}}$ ${\textsf{\color{#C07EC1} really}}$ ${\textsf{\color{#D585C8} couldnt}}$ ${\textsf{\color{#D585C8} say}}$ ${\textsf{\color{#F4F3EA} U⁠ ⁠´⁠꓃⁠ ⁠`⁠ ⁠U}}$ <br>
-${\textsf{\color{#ECDCEC} 𝒲hy}}$ ${\textsf{\color{#F5D9D7} my}}$ ${\textsf{\color{#F5E0C4} life}}$ ${\textsf{\color{#F8EAD5} is}}$ ${\textsf{\color{#E5F4D9} so}}$ ${\textsf{\color{#E4E1EB} 𝒫hoto}}$ ${\textsf{\color{#ECDCEC}graphic!}}$ ${\textsf{\color{#F4F3EA} ₊˚⊹}}$<br>
+     <img src="https://files.catbox.moe/t0e8kq.png" width="20"> ${\textsf{\color{#5E589E} 𝒜nd}}$ ${\textsf{\color{#A274B8} i}}$ ${\textsf{\color{#C07EC1} really}}$ ${\textsf{\color{#D585C8} couldnt}}$ ${\textsf{\color{#D585C8} say}}$ ${\textsf{\color{#5E589E} U⁠ ⁠´⁠꓃⁠ ⁠`⁠ ⁠U}}$ <br>
+${\textsf{\color{#F79BCF} 𝒲hy}}$ ${\textsf{\color{#D585C8} my}}$ ${\textsf{\color{#C07EC1} life}}$ ${\textsf{\color{#A274B8} is}}$ ${\textsf{\color{#5E589E} so}}$ ${\textsf{\color{#A274B8} 𝒫hoto}}$ ${\textsf{\color{#C07EC1}graphic!}}$ ${\textsf{\color{#F79BCF} ♪۪۪}}$<br>
       </td>
     </tr>
   </table>
 
-<img src="https://file.garden/aYcjB7qxDC3tLALZ/spokegithub/spoke_rainbow.gif" width="20"> ${\textsf{\color{#F5D9D7} 𓂃}}$ ${\textsf{\color{#F5E0C4} ࣪}}$ ${\textsf{\color{#F8EAD5} ˖}}$ [rentry](https://rentry.co/dependenceduo) ${\textsf{\color{#E5F4D9}⁺}}$ [ata](https://dol9hins.atabook.org/)${\textsf{\color{#E4E1EB} ༝}}$ [strawpage](https://conexion.straw.page/) ${\textsf{\color{#ECDCEC}⭑}}$ ${\textsf{\color{#F4F3EA}؛༊}}$
+<img src="https://file.garden/aYcjB7qxDC3tLALZ/spokegithub/spoke_rainbow.gif" width="20"> ${\textsf{\color{#F5D9D7}𓎢𓎟}}$ ${\textsf{\color{#F5E0C4} ࣪}}$ ${\textsf{\color{#F8EAD5} ˖}}$ [rentry](https://rentry.co/dependenceduo) ${\textsf{\color{#E5F4D9}⁺}}$ [ata](https://dol9hins.atabook.org/)${\textsf{\color{#E4E1EB} ༝}}$ [strawpage](https://conexion.straw.page/) ${\textsf{\color{#ECDCEC}⭑}}$ ${\textsf{\color{#F4F3EA}؛༊}}$
 <img src="https://komarev.com/ghpvc/?username=100bottlesofglue&style=flat-square&color=B6B9B2&label=george+jr" alt="profile view counter" width="100" align="center">
 
 
