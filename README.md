@@ -1,5 +1,6 @@
 <img src="https://files.catbox.moe/5dbdkh.png" width="350" align="left"> 
 
+
 <img src="https://files.catbox.moe/pa2k7y.png" width="300" align="left">
 
 <br>  
@@ -18,7 +19,7 @@ ${\textsf{\color{#ECDCEC} 𝒲hy}}$ ${\textsf{\color{#F5D9D7} my}}$ ${\textsf{\c
 
  <details>
   <summary> ${\textsf{\color{#F5D9D7}  ♡⃕　﹑}}$ ${\textsf{\color{#F5E0C4} click}}$ ${\textsf{\color{#F8EAD5} me}}$ ${\textsf{\color{#E5F4D9} 2}}$ ${\textsf{\color{#E4E1EB} show}}$ ${\textsf{\color{#ECDCEC} oomfies !}}$ ${\textsf{\color{#F4F3EA} ₊ ݁. • }}$ <img src="https://file.garden/aYcjB7qxDC3tLALZ/spokegithub/spoke_crackers.gif" width="20"> </summary><br>
-   im the biggest pareo bandori kin. so6(w7)39 interact with me I don't bite :) 
+   im the biggest pareo bandori kin. so6(w7)39 interact with me I don't bite :) <br></details>
 
    
 <img src="https://files.catbox.moe/vjbve9.png" width="300" align="left">
